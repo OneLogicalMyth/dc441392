@@ -1,3 +1,4 @@
+
 # Contact
 @dc441392 on twitter
 
@@ -19,4 +20,5 @@ Monday, Tuesday and Thursday of the 1st week each month - unless there is a bank
 
 # Location
 Hosted at the Ship Inn Exeter, UK
+
 https://www.greeneking-pubs.co.uk/pubs/devon/ship/find-us/
