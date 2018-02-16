@@ -1,6 +1,6 @@
 
 # Contact
-@dc441392 on twitter
+[@dc441392](https://twitter.com/dc441392) on twitter
 
 # Events
 Meetings start at 7.30pm.
@@ -15,10 +15,10 @@ Monday, Tuesday and Thursday of the 1st week each month - unless there is a bank
 * Thursday 9th August 2018
 * Monday 10 September 2018
 * Tuesday 2 October 2018
-* 5 November 2018
-* 3 December 2018
+* Thursday 8 November 2018
+* Monday 3 December 2018
 
 # Location
-Hosted at the Ship Inn Exeter, UK
+Hosted at the [Ship Inn Exeter, UK](https://www.greeneking-pubs.co.uk/pubs/devon/ship/find-us/)
 
-https://www.greeneking-pubs.co.uk/pubs/devon/ship/find-us/
+
