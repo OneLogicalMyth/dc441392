@@ -9,7 +9,7 @@ Meetings start at 7.30pm.
 
 Monday, Tuesday and Thursday of the 1st week each month - unless there is a bank holiday.
 
-* Monday 5 March 2018
+* ~Monday 5 March 2018~ Cancelled due to adverse weather, apologies. 
 * Tuesday 10th April 2018
 * Thursday 3rd May 2018
 * Monday 4th June 2018
