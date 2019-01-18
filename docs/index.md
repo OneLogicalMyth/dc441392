@@ -9,12 +9,10 @@ Meetings start at 7.30pm.
 
 Monday, Tuesday and Thursday of the 1st week each month - unless there is a bank holiday.
 
-* Tuesday 3rd July 2018
-* Thursday 9th August 2018
-* Monday 10 September 2018
-* Tuesday 2 October 2018
-* Thursday 8 November 2018
-* Monday 3 December 2018
+* Monday 4th February 2019
+* Tuesday 5th March 2019 - to be confirmed
+* Thursday 4th April 2019 - to be confirmed
+* Monday 6th May 2019 - to be confirmed
 
 # Location
 Hosted at the [Ship Inn Exeter, UK](https://www.greeneking-pubs.co.uk/pubs/devon/ship/find-us/)
