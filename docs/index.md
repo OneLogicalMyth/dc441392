@@ -1,6 +1,9 @@
 ---
 title: Home
 ---
+# About Us
+Promoting understanding of cyber security, sharing of knowledge and techniques to improve the cyber security posture of all; upskilling individuals and organisations with a desire to learn, in order to reduce the cyber security skill gap; promoting ethical hacking, responsible disclosure and network defence in depth; networking, learning, hacking and having fun!
+
 # Contact
 [@dc441392](https://twitter.com/dc441392) on twitter
 
