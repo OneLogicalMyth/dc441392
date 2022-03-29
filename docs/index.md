@@ -6,6 +6,7 @@ Promoting understanding of cyber security, sharing of knowledge and techniques t
 
 # Contact
 [@dc441392](https://twitter.com/dc441392) on twitter
+
 [LinkedIn Group](https://www.linkedin.com/groups/9168216/)
 
 # Events
