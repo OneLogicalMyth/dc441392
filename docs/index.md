@@ -6,24 +6,14 @@ Promoting understanding of cyber security, sharing of knowledge and techniques t
 
 # Contact
 [@dc441392](https://twitter.com/dc441392) on twitter
+[LinkedIn Group](https://www.linkedin.com/groups/9168216/)
 
 # Events
 Meetings start at 7.30pm.
 
-Monday, Tuesday and Thursday of the 1st week each month - unless there is a bank holiday.
+TBD day of the week and TBD week in the month, each month - unless there is a bank holiday.
 
-* Thursday - 09/01/2020
-* Monday - 03/02/2020
-* Tuesday - 03/03/2020
-* Thursday - 02/04/2020
-* Monday - 04/05/2020
-* Tuesday - 02/06/2020
-* Thursday - 02/07/2020
-* Monday - 03/08/2020
-* Tuesday - 01/09/2020
-* Thursday - 01/10/2020
-* Monday - 02/11/2020
-* Tuesday - 01/12/2020
+* Thursday - xx/yy/zzzz
 
 # Location
 Hosted at the [Ship Inn Exeter, UK](https://www.greeneking-pubs.co.uk/pubs/devon/ship/find-us/)
